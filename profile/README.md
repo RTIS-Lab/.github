@@ -1,4 +1,4 @@
-## Hi there gamers we are the RTIS Lab 👋
+## Hi there racers we are the RTIS Lab 👋
 
 <!--
 
